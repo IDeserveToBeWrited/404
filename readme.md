@@ -1,0 +1,1 @@
+[https://ideservetobewrited.github.io/404/](https://ideservetobewrited.github.io/404/)
